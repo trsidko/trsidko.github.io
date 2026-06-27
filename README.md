@@ -1,1 +1,0 @@
-# trsidko.github.io
